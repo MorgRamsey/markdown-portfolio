@@ -1,1 +1,2 @@
-[]- i have no favorite things
+*i dont have favorites
+* :sob:
