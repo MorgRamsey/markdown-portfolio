@@ -1,2 +1,2 @@
-*i dont have favorites
+* i dont have favorites
 * :sob:
